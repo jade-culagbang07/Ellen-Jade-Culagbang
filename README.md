@@ -10,4 +10,4 @@ I help businesses stay organized, productive, and stress-free by managing their 
 Here on GitHub, I share templates, workflow guides, and process tools that support remote teams.  
 
 🚀 Tools I use: Google Workspace | Canva | Excel | Notion | AppScript | ClickUp | Trello
-📫 Reach me at: [your email or portfolio link]
+📫 Reach me at: [ellenjadeculagbang@gmail.com]
